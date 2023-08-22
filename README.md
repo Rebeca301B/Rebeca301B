@@ -3,7 +3,7 @@
 - Estudo atualmente no Ipiranga, utilizarei esse perfil para aprendizado junto do Alura e Javascript;
 - Utilizarei esse espaço para minha organização e compartilhamento dos meu projetos que serão desenvolvidos;
 
-  *Para contato:* 👯
+  *Para contato:* :shipit:
   
   rebeca.ferreira.santos@escola.pr.gov.br
   
