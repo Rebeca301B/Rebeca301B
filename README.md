@@ -6,6 +6,5 @@
   *Para contato:* :shipit:
   
   rebeca.ferreira.santos@escola.pr.gov.br
-  
 
 ![](https://media.tenor.com/4_TUutwm0mEAAAAM/gilmore-girls-gilmore-girls-revival.gif)
